@@ -8,4 +8,4 @@ by:D3X73R
 
 # Mon discord: D3X73R©™#8331
 
-#Mon serveur discord : https://discord.gg/QmMQ2WUAFJ
+# Mon serveur discord : https://discord.gg/QmMQ2WUAFJ
